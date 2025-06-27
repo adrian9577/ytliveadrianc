@@ -1,0 +1,2 @@
+# ytliveadrianc
+mulikonta do bana 
